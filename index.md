@@ -15,3 +15,7 @@ Der grüne Drache KIRSATH taucht hin-und-wieder in den diversen Geschichten von 
 
 ## KIRSATHs Weisheit
 > Wenn Du wirklich von Herzen an etwas glaubst, dann existiert es auch.
+
+## Drachenauge by &copy; BC
+<img src="https://drive.google.com/file/d/14S2VHpc25KNm9rIUV2SAFbGoQGJUhBDE/view?usp=sharing"/>
+Vielen Dank an BC zur Erlaubnis der Nutzung dieses Bildes
