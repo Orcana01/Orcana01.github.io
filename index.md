@@ -12,3 +12,6 @@ Der grüne Drache KIRSATH taucht hin-und-wieder in den diversen Geschichten von 
 * Farbe: dunkel Grün
 * Rolle: Wächterdrache
 * Hauptwohnsitz: Python
+
+## KIRSATHs Weisheit
+> Wenn Du wirklich von Herzen an etwas glaubst, dann existiert es auch.
