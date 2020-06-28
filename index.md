@@ -18,4 +18,5 @@ Der grüne Drache KIRSATH taucht hin-und-wieder in den diversen Geschichten von 
 
 ## Drachenauge by &copy; BC
 <img src="images/drachenauge.png"/>
+</br>
 Vielen Dank an BC zur Erlaubnis der Nutzung dieses Bildes
